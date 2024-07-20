@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Architects+Daughter&size=30&color=F7AA94&lines=Hi+%F0%9F%91%8B+It's+Sandeep;I'm+a+Data+Analyst)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Architects+Daughter&size=30&color=F7AA94&lines=Hi+%F0%9F%91%8B+It's+Rohit;I'm+a+Data+Analyst)](https://git.io/typing-svg)
 
 # 💫 About Me:
 🧑‍💻  [**Rohit Rai**](https://www.linkedin.com/in/20rohit-rai/)<img align="right" width=200px height=200px alt="side_sticker" src="https://media1.giphy.com/media/Y9jnMrKtoulD3ugkJs/giphy.gif?cid=ecf05e478bixwex3msowdz6dsr57n7b0w32oj2wjtxu0vw99&ep=v1_gifs_related&rid=giphy.gif&ct=s" /><br>🥇   **Bsc-it** | Mumbai University 2019-22<br>🎯  Goal-oriented<br>🤓  Optimistic<br>🤝 
