@@ -4,7 +4,6 @@
 🧑‍💻  [**Rohit Rai**](https://www.linkedin.com/in/20rohit-rai/)<img align="right" width=200px height=200px alt="side_sticker" src="https://media1.giphy.com/media/Y9jnMrKtoulD3ugkJs/giphy.gif?cid=ecf05e478bixwex3msowdz6dsr57n7b0w32oj2wjtxu0vw99&ep=v1_gifs_related&rid=giphy.gif&ct=s" /><br>🥇   **Bsc-it** | Mumbai University 2019-22<br>🎯  Goal-oriented<br>🤓  Optimistic<br>🤝 
  Glad to connect with any Data Enthusiasts<br>📞  + 91-9867704725 | Whatsapp | Maharashtra. India<br>📩   Royr60771@gmail.com <br>🧫  **Fun Fact ->** Astutely Easygoing<img src="https://media.giphy.com/media/qjqUcgIyRjsl2/giphy.gif" width="50" />
  
- 
  ***<ul align="center">DATA IS A TOOL FOR ENHANCING INTUITION</ul>***<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
  <br><br>#powerbi #dataanalysis #msexcel #sql<br>#python #statistics #chatgpt #ai 
 
